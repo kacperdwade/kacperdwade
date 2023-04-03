@@ -1,4 +1,4 @@
-<img src="https://i.ibb.co/GtLQ7rn/github-profile.png" alt="github-profile-luksari">
+<img src="https://i.ibb.co/qnHhWQz/kacperdwade.png" alt="github-profile-kacperdwade">
 
 ## About me
 
